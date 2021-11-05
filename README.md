@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @2282173598
+- 👀 I’m interested in AI.
+- 🌱 I’m currently learning how to develop an app.
+- 💞️ I’m looking to collaborate on any field.
+- 📫 How to reach me e-mail:2282173598@qq.com
